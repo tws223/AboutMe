@@ -37,47 +37,32 @@ Auxiliary Programs Intern                  Southborough, MA
 - Performed competitive analysis evaluating similar auxiliary program offerings
 - Marketed St. Mark's to host prospective summer programs
 
-BUSINESS &amp; EDUCATIONAL LEADERSHIP PROGRAMS:
 
-Dell EMC: International Business Leadership Program                                                                                     Hopkinton, MA                                                                                                                                  **
+COMMUNITY OUTREACH AND VOLUNTEER EXPERIENCE:
 
-- .Participated in segments on: business, budgeting, communication, and teamwork                                   Summer 2017**  **                                                                                                                                                                              ****                                                                                                                                                              **
-- .Conducted product case study; presented results to executives and panel of judges, team won 1
-# st
- place
-- .Contributed in working groups on topics of engineering, marketing, sales, finance, and interpersonal skills
+Primarily focused on inclusion, health, wellness, and physical activity for youth:
 
-**Community &amp; Equity Facilitator**  **                                                                                                                       MetroWest Boston**
+Ambassador, Non-profit                                                                                                                                                        Uganda
 
-- .Led inclusion and anti-bias efforts with the Anti-defamation League, Global Citizenship                             **2015-2019**
+######         Embrace Kulture: focused on inclusion, housing, and services for children with disabilities                          2017 - Present                                                                                                                          
 
-Institute, National Association of Independent Schools, and St. Mark&#39;s School         **                                                     **
+- Generate awareness, identify partnership opportunities, and advocate for support for global non-profit
+- Raised $25K with team to build education center in Entebbe and provide annual operating expenses
+- Pitch to potential corporate citizenship sponsors, including CBS, Simon &amp; Schuster, Wegman&#39;s, others
 
-**COMMUNITY OUTREACH AND VOLUNTEER EXPERIENCE:**
+Co-Chair: Grant Funding Team and Event Volunteer                                                                                 MetroWest Boston
 
-**                         **  **Primarily focused on inclusion, health, wellness, and physical activity for youth:**
-
-**Ambassador, Non-profit**  **                                                                                                                                                        Uganda**
-
-###### **        Embrace Kulture: focused on inclusion, housing, and services for children with disabilities**  **                          2017 - Present****                                                                                                                          **
-
-- .Generate awareness, identify partnership opportunities, and advocate for support for global non-profit
-- .Raised $25K with team to build education center in Entebbe and provide annual operating expenses
-- .Pitch to potential corporate citizenship sponsors, including CBS, Simon &amp; Schuster, Wegman&#39;s, others
-
-**Co-Chair: Grant Funding Team and Event Volunteer**  **                                                                                   MetroWest Boston**
-
-###### **        Special Olympics of Massachusetts, Marathon Fitness (Holliston Public Schools)                                          **  **2014 - Present**  **                                                                                     ****                       ****                                             **
+######         Special Olympics of Massachusetts, Marathon Fitness (Holliston Public Schools)                                          2014 - Present                                                                                                                                                         
 
 - .Lead grant writing initiatives for student programs
 - .Cold call, meet, and present to potential donors, sponsors, and businesses to request support for athletes
 
-**Junior Board Member, Non-profit**  **                                                                                                                     Framingham, MA**
+Junior Board Member, Non-profit                                                                                                                     Framingham, MA
 
-###### **         Framingham Union Aid Association: focused on funding health care for under-served                                **** 2017 - Present ****                                                                                            **
+######          Framingham Union Aid Association: focused on funding health care for under-served                                 2017 - Present                                                                                             
 
 - .Created campaign to increase membership by over 10% in 2018
 - .Created partnership with local businesses to secure financial sponsorship funding for FUAA
 - .Collaborated with FUAA president to design a mentoring program with sponsor, New Balance
 
-**Interests:** Sports, the stock market, applying statistical principles to life, cooking, travel
+Interests: Sports, the stock market, applying statistical principles to life, cooking, travel
