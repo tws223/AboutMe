@@ -52,8 +52,8 @@ Co-Chair: Grant Funding Team and Event Volunteer                                
 
 ######         Special Olympics of Massachusetts, Marathon Fitness (Holliston Public Schools)                                          2014 - Present                                                                                                                                                         
 
-- .Lead grant writing initiatives for student programs
-- .Cold call, meet, and present to potential donors, sponsors, and businesses to request support for athletes
+- Lead grant writing initiatives for student programs
+- Cold call, meet, and present to potential donors, sponsors, and businesses to request support for athletes
 
 Junior Board Member, Non-profit                                                                                                                     Framingham, MA
 
