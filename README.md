@@ -6,42 +6,42 @@ Lehigh University:  Anticipated graduation, 2023
 
 PROFESSIONAL WORK EXPERIENCE:
 
-**Market Trends Research Analyst****                     Delray Beach, FL**
+Market Trends Research Analyst                    Delray Beach, FL
 
-###### **        Sister Listers; Lang Realty                                                                                                                                  **  **May/June 2019**
+######         Sister Listers; Lang Realty                                                                                                                                  May/June 2019
 
-- .Met with GL Homes Sales Associates to assess community offerings and benefits
-- .Created useable reports for real estate team to share with clients
+- Met with GL Homes Sales Associates to assess community offerings and benefits
+- Created useable reports for real estate team to share with clients
 
-**New Store Launch &amp; Product Specialist**  **                                                                                                                     Milford, MA**
+New Store Launch &amp; Product Specialist                                                                                                                     Milford, MA
 
-###### **        Skechers USA, Inc.                                                                                                                                                **  **Summer 2019**  **                                                                                                   **
+######        Skechers USA, Inc.                                                                                                                                                Summer 2019                                                                                                   
 
-- .Met and often exceeded retail productivity measurements
-- .Created exceptional and exciting customer experience
-- .Accurately received merchandise, totaled bills, accepted payments for customers
-- .Stocked shelves, tracked inventory, and assisted with proper placement of company&#39;s material
-- .Assisted with store operations and supply chain requirements
+- Met and often exceeded retail productivity measurements
+- Created exceptional and exciting customer experience
+- Accurately received merchandise, totaled bills, accepted payments for customers
+- Stocked shelves, tracked inventory, and assisted with proper placement of company&#39;s material
+- Assisted with store operations and supply chain requirements
 
-**Restaurant Team Member****                             Milford, MA**
+Restaurant Team Member                             Milford, MA
 
-###### **        Chipotle                                                                                                                                                                  **  **Summer 2019**
+######        Chipotle                                                                                                                                                                  Summer 2019
 
-- .Took orders, prepared meals, packaged food items, and rung up customer purchases
+- Took orders, prepared meals, packaged food items, and rung up customer purchases
 
-**Auxiliary Programs Intern****                  Southborough, MA**
+Auxiliary Programs Intern                  Southborough, MA
 
-###### **        St. Mark&#39;s School**  **               **  **                                                                                                                       Summer 2018**
+######  St. Mark's School                                                                                                                                      Summer 2018
 
-- .Provided exemplary customer service to camp leaders and participants
-- .Performed competitive analysis evaluating similar auxiliary program offerings
-- .Marketed St. Mark&#39;s to host prospective summer programs
+- Provided exemplary customer service to camp leaders and participants
+- Performed competitive analysis evaluating similar auxiliary program offerings
+- Marketed St. Mark's to host prospective summer programs
 
 BUSINESS &amp; EDUCATIONAL LEADERSHIP PROGRAMS:
 
-**Dell EMC: International Business Leadership Program**  **                                                                                      Hopkinton, MA                                                                                                                                  **
+Dell EMC: International Business Leadership Program                                                                                     Hopkinton, MA                                                                                                                                  **
 
-- .Participated in segments on: business, budgeting, communication, and teamwork                                   **Summer 2017**  **                                                                               ****                                                                                                 ****                                                                                                                                                              **
+- .Participated in segments on: business, budgeting, communication, and teamwork                                   Summer 2017**  **                                                                                                                                                                              ****                                                                                                                                                              **
 - .Conducted product case study; presented results to executives and panel of judges, team won 1
 # st
  place
