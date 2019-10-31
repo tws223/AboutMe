@@ -2,8 +2,6 @@ Thomas William Scaringella
 
 Lehigh University:  Anticipated graduation, 2023
 
-# OBJECTIVE:  Highly focused and responsible Lehigh University student seeking professional environment where teamwork, integrity, and business driven goals are the priority. Engage with colleagues to contribute strongly in a role to deliver quality service and accuracy. Leverage business principles and practices experienced working with diverse organizations and individuals. Collaborate with others who share enthusiasm, charismatic communication skills, and an exemplary work ethic.
-
 PROFESSIONAL WORK EXPERIENCE:
 
 Market Trends Research Analyst                    Delray Beach, FL
