@@ -59,8 +59,8 @@ Junior Board Member, Non-profit                                                 
 
 ######          Framingham Union Aid Association: focused on funding health care for under-served                                 2017 - Present                                                                                             
 
-- .Created campaign to increase membership by over 10% in 2018
-- .Created partnership with local businesses to secure financial sponsorship funding for FUAA
-- .Collaborated with FUAA president to design a mentoring program with sponsor, New Balance
+- Created campaign to increase membership by over 10% in 2018
+- Created partnership with local businesses to secure financial sponsorship funding for FUAA
+- Collaborated with FUAA president to design a mentoring program with sponsor, New Balance
 
 Interests: Sports, the stock market, applying statistical principles to life, cooking, travel
